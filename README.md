@@ -368,7 +368,7 @@ God does not speak gently about idols. He does not use sanitized theological jar
 
 The Hebrew word *gillulim*, used over 48 times in Ezekiel alone, is often translated as "idols." But the root meaning is far more graphic: **dung pellets, excrement, filth**.
 
-God is not calling idols "misguided religious expressions." He is calling them **shit**. This is the Creator's evaluation of man-made gods. They are worthless, disgusting, and fit only to be discarded.
+God is not calling idols "misguided religious expressions." He is calling them "**shit**"—a translation chosen to capture the full rhetorical force and visceral scorn of the original Hebrew dysphemism. This is the Creator's evaluation of man-made gods. They are worthless, disgusting, and fit only to be discarded.
 
 Ezekiel 6:4-5 demonstrates this:
 > "Your altars shall become desolate, and your incense altars shall be broken, and I will cast down your slain before your idols (*gillulim*). And I will lay the dead bodies of the people of Israel before their idols (*gillulim*), and I will scatter your bones around your altars."
