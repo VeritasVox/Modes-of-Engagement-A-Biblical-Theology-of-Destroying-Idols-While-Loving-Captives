@@ -62,6 +62,7 @@ NOTE: Engagement with those outside the faith is not in scope. For coverage of t
   - [VII. Logical Exposure of Internal Contradictions](#vii-logical-exposure-of-internal-contradictions)
   - [VIII. Public Confrontations/Contests](#viii-public-confrontationscontests)
   - [IX. Cutting Humor](#ix-cutting-humor)
+  - [X. Authority and Certainty: The One Thing We Cannot Claim](#x-authority-and-certainty-the-one-thing-we-cannot-claim)
   - [Summary of Part 2](#summary-of-part-2)
 - [PART 3: The Human Variable - Engaging Persons in Relationship to Their Idols](#part-3-the-human-variable---engaging-persons-in-relationship-to-their-idols)
   - [I. The Critical Distinction: Captive vs. Defender](#i-the-critical-distinction-captive-vs-defender)
@@ -613,6 +614,29 @@ Jesus uses absurd imagery to expose the Pharisees' hypocrisy. They meticulously 
 **Purpose**: Humor disarms and exposes simultaneously. It makes the error memorable and strips it of pretension.
 
 **Modern Application**: When a system obsesses over secondary matters while ignoring primary ones, or when it claims precision while embracing blatant contradiction, humor is appropriate. "You say God wills all to be saved, yet most aren't—so God's will is thwarted. That's not sovereignty, that's hope."
+
+### X. Authority and Certainty: The One Thing We Cannot Claim
+
+The prophets and apostles used every method catalogued above—including harsh personal rebuke, public confrontation, and pronouncements of judgment. We are called to imitate this, including:
+
+- **Judging current state and fruit** (Matt 7:15-20; 1 Cor 5:3)
+- **Declaring "anathema" over false gospels** and those who preach them (Gal 1:8-9)
+- **Publicly rebuking** those who lead others astray (Gal 2:11-14; 1 Tim 5:20)
+- **Warning harshly** when someone persists in error (Titus 1:13)
+- **Applying church discipline** and marking false teachers (Rom 16:17; Titus 3:10)
+
+All of this is not only permitted—it is commanded.
+
+#### The One Difference: Prophetic Certainty
+
+What we lack is the **infallible, revelatory knowledge** the prophets and apostles possessed. They spoke with divine authority about final destinies. We judge based on observable fruit and current trajectory, but we acknowledge the limits of our knowledge:
+
+- "God **may perhaps** grant them repentance" (2 Tim 2:24-25)
+- We don't know who will ultimately stand or fall (Rom 14:4)
+
+**Practically:** We can say "You're teaching damning error and if you persist after correction, you're acting as a false teacher." We cannot say with prophetic certainty "God has finally rejected you."
+
+The goal, even in the harshest rebuke, remains **restoration** (2 Cor 2:5-11; Gal 6:1). We fight for truth and against error—including harsh confrontation of persons when their posture demands it—while acknowledging only God knows the end of the story.
 
 ---
 
