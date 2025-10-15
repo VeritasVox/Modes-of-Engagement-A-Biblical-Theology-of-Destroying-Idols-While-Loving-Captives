@@ -8,6 +8,20 @@
 
 ---
 
+## Abstract
+
+This paper confronts the modern evangelical church's failure to engage false teaching robustly, a failure rooted in a sentimentalist conflation of biblical love with passivity and doctrinal indifference. It argues that Scripture mandates a dual approach: **the merciless destruction of theological idols** (false systems) and a **calibrated engagement with persons** (captives, defenders, etc.) that factors their posture and knowledge.
+
+The argument is established by first defining theological systems as functional, immaterial idols whose claims are not merely erroneous but **metaphysically impossible**, demonstrated through the doctrine of divine simplicity. This ontological blasphemy is then framed as covenant betrayal, justifying the severity modeled by God and His prophets.
+
+Citing the explicit mandate for spiritual warfare in **2 Corinthians 10**, the paper catalogs the biblical arsenal for destroying these ideological strongholds. It then presents a comprehensive practical framework, including a **"Step 0" self-diagnostic** for the confronter, a **four-variable diagnostic tool** (Doctrinal Weight, Knowledge, Posture, Context), a **nine-mode engagement matrix**, and a critical distinction between the duties of individual believers and the **corporate authority of the church**.
+
+The paper concludes that the ultimate goal of all modes of engagement—from gentle instruction to corporate anathema—is the rescue of souls, the protection of the flock, and the vindication of God's glory. This requires wielding the Word of God with both surgical precision against error and profound love for the people ensnared by it.
+
+**Keywords:** *Idolatry • False Teaching • Church Discipline • Divine Simplicity • Spiritual Warfare • Biblical Love • Rebuke • Correction • Heresy • Gospel Fidelity • Anathema • Church Authority • Theological Triage*
+
+---
+
 ## Table of Contents
 
 - [Introduction: On Love, Rebuke, and the Fear of Man](#introduction-on-love-rebuke-and-the-fear-of-man)
