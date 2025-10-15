@@ -636,7 +636,7 @@ What we lack is the **infallible, revelatory knowledge** the prophets and apostl
 
 **Practically:** We can say "You're teaching damning error and if you persist after correction, you're acting as a false teacher." We cannot say with prophetic certainty "God has finally rejected you."
 
-The goal, even in the harshest rebuke, remains **restoration** (2 Cor 2:5-11; Gal 6:1). We fight for truth and against error—including harsh confrontation of persons when their posture demands it—while acknowledging only God knows the end of the story.
+The goal, even in the harshest rebuke, remains **restoration** (2 Cor 2:5-11; Gal 6:1). We fight for truth and against error—including harsh confrontation of persons when their posture demands it—while acknowledging only God knows the end of the story. Let the Word of God be the authority. Let His Word speak on His own terms.
 
 ---
 
