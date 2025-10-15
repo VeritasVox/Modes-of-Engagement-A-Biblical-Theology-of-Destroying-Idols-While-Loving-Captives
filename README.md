@@ -18,6 +18,8 @@ Citing the explicit mandate for spiritual warfare in **2 Corinthians 10**, the p
 
 The paper concludes that the ultimate goal of all modes of engagement—from gentle instruction to corporate anathema—is the rescue of souls, the protection of the flock, and the vindication of God's glory. This requires wielding the Word of God with both surgical precision against error and profound love for the people ensnared by it.
 
+NOTE: Engagement with those outside the faith is not in scope. For coverage of that topic, please see my paper (repository) on Biblical Apologetics and Critical Theory.
+
 **Keywords:** *Idolatry • False Teaching • Church Discipline • Divine Simplicity • Spiritual Warfare • Biblical Love • Rebuke • Correction • Heresy • Gospel Fidelity • Anathema • Church Authority • Theological Triage*
 
 ---
