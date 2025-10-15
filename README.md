@@ -136,6 +136,51 @@ This paper will establish:
 
 The goal is not to give license for cruelty. The goal is to recover biblical courage—the willingness to name error, expose idols, and call people out of darkness, even when it costs us comfort, reputation, or relationships.
 
+### Two Critical Clarifications
+
+Before we proceed, two foundational clarifications are necessary to prevent predictable evasions.
+
+#### True Theology vs. Perfect Theology
+
+The assertion that we can identify false gods and false systems presupposes that we can have **true knowledge of God**. This is not the same as claiming we have **exhaustive knowledge of God**.
+
+God is infinite; we are finite. We cannot know Him comprehensively. But Scripture reveals Him **truly**. What God has revealed, He has revealed clearly. We do not need omniscience to distinguish truth from error. We need submission to revelation.
+
+**The distinction:** 
+- **Exhaustive theology** = knowing everything about God (impossible for creatures)
+- **True theology** = knowing truly what God has revealed (possible and commanded)
+
+When someone says, "We can't really know," or "All theology is just interpretation," they are collapsing the distinction between true and exhaustive knowledge. This is a false humility that masquerades as intellectual honesty while functionally denying the clarity and sufficiency of Scripture.
+
+**Romans 1:19-20**: "For what can be known about God is plain to them, because God has shown it to them. For his invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made. So they are without excuse."
+
+God holds people accountable for what He has revealed. This means what He has revealed is **knowable**. Not exhaustively, but truly. The Arminian who claims "we can't really know how sovereignty and responsibility work together" is using epistemological fog to avoid clear texts. We may not know exhaustively, but we know truly: God is sovereign, man is responsible, and any system that denies either is false.
+
+**Application to this paper:** When we identify a theological system as idolatrous, we are not claiming to know everything about God. We are claiming to know what God has said about Himself in Scripture, and we are holding systems accountable to that revelation. To demand exhaustive knowledge before making any truth claims is to make theology impossible and idolatry unidentifiable.
+
+#### The False Invocation of Mystery
+
+Scripture contains genuine mysteries—truths that transcend human comprehension. The Trinity, the incarnation (fully God and fully man in one person), and the coexistence of divine sovereignty and human responsibility are mysteries **revealed**, not mysteries **concealed**.
+
+God has told us these things are true. We do not comprehend them exhaustively, but we confess them truly. The mystery is not that we don't know what God said—the mystery is that what God said exceeds our capacity to fully grasp.
+
+**But the modern church has weaponized "mystery" as an excuse to avoid clear teaching.**
+
+When someone says, "The relationship between God's sovereignty and human freedom is a mystery, so Calvinism and Arminianism are both valid," they are not appealing to biblical mystery—they are evading biblical clarity.
+
+Scripture is not mysterious about whether God's will can be ultimately thwarted. It is crystal clear: "My counsel shall stand, and I will accomplish all my purpose" (Isaiah 46:10). "He does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand" (Daniel 4:35). There is no mystery here. There is only submission or rebellion.
+
+The mystery is **how** divine sovereignty and human responsibility coexist. The clarity is **that** they both do. Any system that denies one to preserve the other has not embraced mystery—it has rejected revelation.
+
+**The test:** Is the mystery in the text itself, or is it being imported to avoid the text's clear claim?
+
+- **Biblical mystery**: "How can Jesus be fully God and fully man?" (Scripture affirms both; we confess both)
+- **False mystery**: "Does God actually save or just make salvation possible?" (Scripture is clear: He saves)
+
+**Application to this paper:** When we dismantle false systems, we are not claiming to resolve all mysteries. We are claiming that God has spoken clearly on His nature, His gospel, and His commands. To hide behind "mystery" when Scripture is clear is not humility—it is disobedience dressed in religious language.
+
+If God has spoken clearly, we have no right to soften it. If God has left something mysterious, we have no right to systematize it. The issue is always: What does the text say? If the text is clear, the mystery defense is invalid.
+
 **"For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were still trying to please men, I would not be a servant of Christ." (Galatians 1:10)**
 
 The fear of man is a snare. The fear of God is freedom.
