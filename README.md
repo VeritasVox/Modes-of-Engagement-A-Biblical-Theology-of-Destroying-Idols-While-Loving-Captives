@@ -118,7 +118,7 @@ The man who dismantles error with biblical force but does so with contempt for t
 
 Consider, for example, Leighton Flowers and similar provisionist teachers. They are thoroughly entangled in this system, blind to the contradictions, and actively teaching others to embrace a false god—a deity whose will can be thwarted, whose Son's death accomplished nothing certain, whose Spirit is ultimately resistible. That **system** must be destroyed. It dishonors the Father, the Son, and the Spirit.
 
-But such teachers? They are lost in their thinking. The goal is not to humiliate them—it is to expose the idol so that they and those under his influence can be freed. **The system receives no mercy. The person—depending on their posture—receives either patient instruction (if genuinely ignorant and soft), direct confrontation (if informed and inconsistent), or immediate marking and separation (if defending the system after correction).**
+But such teachers? They are lost in their thinking. The goal is not to humiliate them—it is to expose the idol so that they and those under their influence can be freed. **The system receives no mercy. The person—depending on their posture—receives either patient instruction (if genuinely ignorant and soft), direct confrontation (if informed and inconsistent), or immediate marking and separation (if defending the system after correction).**
 
 This is the heart of biblical engagement: **destroy the idol, factor the person.**
 
