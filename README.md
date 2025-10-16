@@ -154,7 +154,7 @@ Here is the key: **Scripture distinguishes between people enslaved by idols and 
 
 - The **Pharisees** were the architects and enforcers of a false system. Jesus was confrontational, public, and severe: "Woe to you, scribes and Pharisees, hypocrites!" (Matthew 23:13-36). He didn't dialogue with them—He denounced them.
 
-Same false worship. Different heart posture. Different mode of engagement.
+Same false worship. Different relationship to the idol. Different heart posture. Different mode of engagement.
 
 Paul was patient with confused Corinthians who didn't understand the resurrection (1 Corinthians 15). He was savage with Judaizers who were actively perverting the gospel (Galatians 1:8-9). The difference? One group was confused. The other was the infection.
 
